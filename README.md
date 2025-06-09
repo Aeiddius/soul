@@ -3,6 +3,8 @@ On a random day, on a random night, Lucius accidentally met a dying man who hand
 
 Without any choice or knowledge, Lucius ran away and encountered people who claim to be his allies.
 
+Idea: A guy struggling with his evil side. The story is about whether he succumbs to it or not
+
 ## World
 A Secret Society keeps the world moving. 
 
