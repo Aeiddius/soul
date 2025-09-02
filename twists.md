@@ -1,0 +1,1 @@
+- Rhea's mentor ordered the slayer corps towards another city to secure the princess, who has the potential to help with the war, essentially sacrificing her village
