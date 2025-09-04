@@ -1,3 +1,6 @@
-# Chapter 1 - Rebirth (1)
 
-"The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion"  - Albert Camus
+# Chapter 1
+
+*"The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion"*  - Albert Camus
+
+A cold frozen breeze enveloped the dim sky. Amidst the snow, a little girl walked with heavy, painful steps. Her once b
