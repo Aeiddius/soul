@@ -1,1 +1,2 @@
 - Rhea's mentor ordered the slayer corps towards another city to secure the princess, who has the potential to help with the war, essentially sacrificing her village
+- the demon that attacked rhea's village was the demon of infection who infected people and when the time comes, they burst into abominations of grosteque proportions. later in the story, rhea sees the same event happen to a village and is forced to purge them.

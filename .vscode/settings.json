@@ -4,7 +4,7 @@
     "editor.tabSize": 4,
     "editor.wrappingIndent": "same",
     "editor.wordWrap": "wordWrapColumn",
-    "editor.wordWrapColumn": 120,
+    "editor.wordWrapColumn": 90,
     "editor.quickSuggestions": {
       "comments": "on",
       "strings": "on",
